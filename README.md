@@ -6,7 +6,4 @@ https://drive.google.com/file/d/1laomu_OeTg7eAOa8_-OP07LJ9rTv_age/view?usp=shari
 
 
 
-
-
- https://drive.google.com/file/d/1laomu_OeTg7eAOa8_-OP07LJ9rTv_age/view?usp=sharing
- 
+[Uploading KASTAMONU ÜNİVERSİTESİ.docx…]()
